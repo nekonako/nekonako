@@ -1,1 +1,1 @@
-### Orang ganteng
+Suka linux sama jawascript
