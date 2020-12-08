@@ -1,1 +1,1 @@
-Suka linux sama jawascript
+Peternak penguin dan honocorokoscript
