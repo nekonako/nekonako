@@ -1,1 +1,1 @@
-Penikmat kopi dan drama professional
+Penikmat kopi dan drama
