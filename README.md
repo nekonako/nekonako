@@ -1,1 +1,5 @@
-.
+- 19 years old boy from batik city, Indonesia
+- Love Linux
+- Love programming
+- Bad at work interview :)
+- weebs
